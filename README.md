@@ -1,0 +1,1 @@
+# duzeltme-sihirbazi-surumler
